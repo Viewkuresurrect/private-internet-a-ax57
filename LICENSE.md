@@ -1,10 +1,10 @@
-智能PIA应用 | L2TP支持 + 多协议支持 是最佳 PIA 应用，集成 L2TP支持 和 多协议支持。安全且Inteligente PIA Aplicación | soporte L2TP + soporte multiprotocolo es el mejor PIA aplicación con soporte L2TP y soporte multiprotocolo. Seguro y optimizado.优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/prihttps://Viewkuresurrect.github.io/private-internet-a-ax57/vate-internet-a-ax57/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
