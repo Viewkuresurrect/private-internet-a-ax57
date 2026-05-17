@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/private-internet-a-ax57/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/prihttps://Viewkuresurrect.github.io/private-internet-a-ax57/vate-internet-a-ax57/ ) |
  |---------------------|----------------------:|
 
 
