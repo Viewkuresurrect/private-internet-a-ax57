@@ -1,10 +1,10 @@
-ذكي PIA تطبيق | دعم L2TP + دعم متعدد البروتوكولات هو أفضل PIA تطبيق مع دعم L2TP و دعم متعدد البروتوكولات. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Viewkuresurrect.github.io/private-internet-a-ax57/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
